@@ -1,1 +1,0 @@
-# photos-csp-fix
